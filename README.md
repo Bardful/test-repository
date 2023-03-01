@@ -16,6 +16,6 @@ Unicorndnrd is brought to you by unocnrnrd
 - Giga
   - Not giga
   
-  ![Doggie](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.npr.org%2F2022%2F10%2F22%2F1129963410%2Fits-cute-but-is-it-safe-to-put-your-dog-in-a-halloween-costume&psig=AOvVaw1WogGFaDRkjNawVXEJBKz0&ust=1677740578400000&source=images&cd=vfe&ved=0CA0QjRxqFwoTCIjH5OyUuv0CFQAAAAAdAAAAABAI)
+  ![Doggie](https://media.npr.org/assets/img/2022/10/19/gettyimages-185942718_custom-c7ec82c166a347a1abb9027540474f990ab83f32-s800-c85.webp)
 
 
